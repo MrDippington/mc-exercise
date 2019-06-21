@@ -1,1 +1,3 @@
-“This is what Bob & Carol did on Bob’s computer when working on the first feature”...how many lips does a flower have?.....TU-LIPS
+“This is what Bob & Carol did on Bob’s computer when working on the first feature” 
+HOW DOES A SQUID GO TO BATTLE?
+.....well armed lol
